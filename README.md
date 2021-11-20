@@ -10,4 +10,3 @@
 
 #### Find Me 🔎
 - 🌟Blog: [Seals6 blog](http://blog.seals6.top)
-- ⛩Team: [FIRE HAWK](https://www.nsfocus.com.cn/)
